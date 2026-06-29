@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://SegmentGunsmithShaft.github.io/build-a-boat-for-t-jb85/ ) |
  |---------------------|----------------------:|
 
 
